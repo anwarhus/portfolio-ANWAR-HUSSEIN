@@ -8,3 +8,11 @@ För närvarande studerar jag **AI & ML** på **ITHS**. Tidigare har jag även s
 ## Arbete 💼
 
 Jag är stolt över att arbeta heltid hos [Solifokus](https://www.solifokus.se)
+
+## Fritid 🎮⚽
+
+På min fritid njuter jag av att:
+- Spela på min **PlayStation**.
+- Titta på **fotboll**.
+
+Tack för att du besöker min profil. Hoppas du finner den intressant!
